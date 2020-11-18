@@ -1,0 +1,3 @@
+Procedures: Part 1 1. Place tortilla in a flat surface, ladle enough pizza sauce into the center and spread it out in a spiral motion. Leave about 1/2 inch of unsauce tortilla at the edges. 2. Sprinkle shredded cheese on top then add and arrange ham evenly. 3. Spread shredded cheese on top of the toppings. Repeat for remaining pieces. 
+
+Party 2 1. Pre-heat oven over 200 degrees Fahrenheit then bake tortillas for 8-10 minutes or until the tortillas are crisp and the cheese is melted. 2. Remove from the oven then transfer to round sheet. Cut into 4-6 serving slices then serve with hot sauce

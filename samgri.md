@@ -1,0 +1,1 @@
+Ingredients: 4 pieces tortilla(8-10 inch diameter) 1 1/2 cup pizza sauce or tomato sauce 150 grams mozzarella cheese or quick melt, grated 100 grams sweet ham, cooked and cut into cubes
